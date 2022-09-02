@@ -9,7 +9,7 @@ All the articles translated can be acessed at the library _**"História Digital"
 ### List of translations:
 
 1. Thefending the digital:Awareness of digital selectivity in historical research practice (Jon Coburn)  
- Issue number #1 .
+ Issue number #2.
   
    
  
